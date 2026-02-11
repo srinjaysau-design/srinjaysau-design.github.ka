@@ -1,1 +1,0 @@
-# srinjaysau-design.github.ka
